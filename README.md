@@ -1,4 +1,11 @@
 # IT-Chaser
 It Talent Chaser test project
 Vukani
-scoot
+Nora4500
+Lwethu P Simelane
+Anele Magagula
+Kervin DuPont
+Sihle Mthembu 
+Snqobile Dlamini
+Wakhile 
+Banele Nkambule
