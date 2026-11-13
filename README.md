@@ -1,5 +1,6 @@
 # IT-Chaser
 It Talent Chaser test project
+Lusanda Jele
 Hlukanisa
 Vukani
 Nora4500
